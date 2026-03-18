@@ -1,3 +1,4 @@
+adhan-privacy
 Privacy Policy 
 Adhan – Prayer, Qibla & Ezan
  Last updated: 18 03 2026
