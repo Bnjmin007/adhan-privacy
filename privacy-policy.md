@@ -1,6 +1,5 @@
 adhan-privacy
 
-
 Privacy Policy 
 
 Adhan – Prayer, Qibla & Ezan
